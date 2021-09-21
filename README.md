@@ -9,7 +9,7 @@ Instructions on how to run
 
 Video:
 
-If you are unable to run the game, that's ok! I have included a video below for you to watch instead. (Video to be added Sepetember 22, 2021)
+If you are unable to run the game, that's ok! I have included a video below for you to watch instead. (Video to be added Sepetember 21, 2021 in the morning)
 
 I'd love any feedback on my game or what I could have done better for next time!
 
